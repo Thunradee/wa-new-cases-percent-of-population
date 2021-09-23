@@ -1,0 +1,1 @@
+# wa-new-cases-percent-of-population
